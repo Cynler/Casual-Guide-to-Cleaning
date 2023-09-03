@@ -24,13 +24,13 @@ Nonsticks are great for beginners because it can easily be cleaned with hot wate
 Soaking Nonsticks in soap water for long periods of time can corrode the surface. So wash them quickly! 
 Scrub them in baking soda and water paste for tougher stains.
 
-**Aluminum Pots and Pans:**
+### Aluminum Pots and Pans:
 ![Tips for Aluminum](https://cdn.kitchencabinetkings.com/media/siege/cleaning-pots-and-pans/cleaning-posts-and-pans-aluminum.png)
 
-**Glass:**
+### Glass:
 ![Tips for Glass](https://cdn.kitchencabinetkings.com/media/siege/cleaning-pots-and-pans/cleaning-posts-and-pans-glass.png)
 
-**Stainless Steel:**
+### Stainless Steel:
 ![Tips for Stainless Steel](https://cdn.kitchencabinetkings.com/media/siege/cleaning-pots-and-pans/cleaning-posts-and-pans-stainless-steel.png)
 Overheating Stainless Steel pans for long periods of time can cause discoloration. Say, if you overboil water, that will cause discoloration.
 Hmmm, I wonder why does my pan look so discolored after being used by someone. What a mystery.
