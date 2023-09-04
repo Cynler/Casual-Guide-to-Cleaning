@@ -43,7 +43,7 @@ So, this is awkward, while researching I discovered that Baking Soda can damage 
 ![Tips for Stainless Steel](https://cdn.kitchencabinetkings.com/media/siege/cleaning-pots-and-pans/cleaning-posts-and-pans-stainless-steel.png)
 
 Overheating Stainless Steel pans for long periods of time can cause discoloration. Say, if you overboil water, that will cause discoloration.
-Hmmm, I wonder why my pan looks so discolored after being used by someone. What a mystery...
+Hmmm, I wonder why the pan looks so discolored after being used by someone. What a mystery...
 
 ## Stovetop
 ### Regular Clean
@@ -51,6 +51,9 @@ Hmmm, I wonder why my pan looks so discolored after being used by someone. What 
 ## Any surface above the floor
 What is any surface above the floor? Tables, Countertops, Shelves...Any surfaces exposed in the open that are horizontal.
 ## Floor
+For dry messes, the cleaning instructions are nearly identical. Yes, we do have a [robot vacuum cleaner](#robot-vacuum), but he only does so much for the floors that it can reach, and he should really only have to worry about normal household dust, and maybe hair that falls on the ground. We have a broom and dustpan wedged between the fridge and tall shelf, as well as a [compact vacuum cleaner](#vacuum-cleaner). Either one should be plenty for most dry messes. 
+
+Wet messes are more complicated, and different surfaces require different types of attention, detailed below.
 ### Wooden Floor
 ### Tiles
 ## Cloth-based 
@@ -61,6 +64,20 @@ Please do not kill the washer by overloading the high pressured washing machines
 ### Food waste
 ### Dirty containers
 ### Packaging
+## Cleaning Tools
+### Robot Vacuum
+![goobs portrait](https://smartrobotichome.com/wp-content/uploads/2019/03/Shark-Ion-R85.png)
+
+We have a prototype of the Shark RV850 Robot Vacuum Cleaner, affectionately named Goob. Being a prototype, he's missing the hardware necessary to be as smart as the finished product, but we love him very much. He is programmed to run every Monday, Wednesday, and Friday at 5pm, and will derp around from room to room cleaning up whatever is in his path. He doesn't do a perfect job, but he is a massive help in keeping the house clean.
+
+He will need to be emptied out into the trash can at least once a month. The canister is on the back, which hinges open. The filter inside should also be tapped clean.
+
+### Vacuum Cleaner
+![vacuum](https://www.bissell.com/dw/image/v2/BDKV_PRD/on/demandware.static/-/Sites-master-catalog-bissell/default/dw34f0bcd9/hi-res/Product-Images/2033E/2033E_2in1stick_vac.jpg?sw=1000&sh=1000&sm=fit)
+
+This vacuum cleaner is light duty, meant for dust, and maybe some small debris. Luckily, that's pretty much as bad of a dry mess as we can really produce in this house.
+
+After each use, the canister should be emptied into the trash can, and the mesh filter should be washed. Since this is a cleaning tool, the filter should be left to dry in the bucket that's kept near the back door. Once the filter is dry, reassemble the vacuum cleaner so it's ready for the next use.
 
 ## The End
 I know that if you've never really done this before it can feel daunting, but since asking questions as you go might feel awkward because you might not know where to start, really the best way to learn is to do them. Clean the sofa, your own room, and try cleaning the stove top after you cook. 
