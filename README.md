@@ -138,6 +138,7 @@ If you have a lot of dirty containers, slightly wash out the food scraps and dri
 ## Cleaning Tools
 ### Baking Soda
 ![baking soda](./img/baking-soda.png)
+
 Sodium Bicarbonate is actually a salt. Because Baking Soda's pH is higher than neutral, it is slightly basic (the opposite of acidic.)
 Here's what Baking Soda can do:
 - It absorbs odors, most smells are acidic and baking soda reacts with acids to neutralize them.
@@ -146,6 +147,7 @@ Here's what Baking Soda can do:
 
 ### Citric Acid
 ![citric acid](./img/citric-acid.jpg)
+
 Citric acid is basically the acidic partner for baking soda. It is a weaker version of cleaning alcohol that is food safe.
 There's alot of things you can do with it, search it up if you are interested.
 
@@ -170,7 +172,7 @@ After each use, the canister should be emptied into the trash can, and the mesh 
 
 ![refill pads](./img/refillable-pads.jpg)
 
-The mop is great, it can be used to wet or dry flat surfaces. Use a microfiber cloth or refill pads. Use google search I guess. I'm tired. 
+The mop is great, it can be used to wet or dry flat surfaces. Use a microfiber cloth or refill pads. Use google search if you don't know what to do next I guess. I'm tired. 
 
 ## The End
 I know that if you've never really done this before it can feel daunting, but since asking questions as you go might feel awkward because you might not know where to start, really the best way to learn is to do them. Clean the sofa, your own room, and try cleaning the stove top after you cook. **ASK IF YOU DON'T KNOW HOW, ASK!!!!**
