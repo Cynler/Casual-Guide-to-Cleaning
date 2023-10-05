@@ -241,7 +241,7 @@ Any TV sound level above 20 can be heard clearly from every room of this floor e
 - Laundry Soap, Laundry Sheets
 - Batteries
 
-**According to an ancient myth, if you ever pay attention any of these depleting and replensihing magically in a house you will have good luck forever <3 The little leprechauns check on them bi-weekly and stock them with their personal income.**
+**According to an ancient myth, if you ever pay attention any of these depleting and replenishing magically in a house you will have good luck forever <3 I heard if you make a wish little house elves restock them, cool, right?.**
 
 ## The End
 I know that if you've never really taught to notice this before it can feel daunting, but since asking questions as you go might feel awkward because you might not know where to start, really the best way to learn is to do them. Clean the sofa, your own room, and try cleaning the stove top after you cook. **ASK IF YOU DON'T KNOW HOW OR WHERE OR WHY, ASK SOMEONE or GOOGLE!!!!**
