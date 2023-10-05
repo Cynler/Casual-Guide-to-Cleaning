@@ -17,7 +17,6 @@
     - [Toilet](#toilet)
         - [Scientific Guide to avoid pee splashing](#scientific-guide-to-avoid-pee-splashing)
             - [Fool Proof way #1](#fool-proof-way-1)
-            - [Fool Proof way #2](#fool-proof-way-2)
             - [Picture Guide and Detailed explaination](#picture-guide-and-detailed-explaination)
     - [Cloth-based](#cloth-based)
         - [Sofa](#sofa)
@@ -34,9 +33,9 @@
         - [Robot Vacuum](#robot-vacuum)
         - [Vacuum Cleaner](#vacuum-cleaner)
         - [Cleaning Mop](#cleaning-mop)
-- [Addition: Casual Guide to Roommate (Lite)](#addition-casual-guide-to-roommate-lite)
+- [Extra: Casual Guide to Roommate (Lite)](#extra-casual-guide-to-roommate-lite)
     - [Sound Level](#sound-level)
-    - [Things in house that is used constantly and it'll be kinda, really, super nice if all members contribute and check on them](#things-in-house-that-is-used-constantly-and-itll-be-kinda-really-super-nice-if-all-members-contribute-and-check-on-them)
+    - [Things in house that is used constantly and it'll be kinda, really, super nice if all members contribute to ensure they are stocked](#things-in-house-that-is-used-constantly-and-itll-be-kinda-really-super-nice-if-all-members-contribute-to-ensure-they-are-stocked)
     - [The End](#the-end)
 
 <!-- markdown-toc end -->
