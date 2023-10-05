@@ -14,16 +14,29 @@
     - [Floor](#floor)
         - [Wooden Floor](#wooden-floor)
         - [Tiles](#tiles)
+    - [Toilet](#toilet)
+        - [Scientific Guide to avoid pee splashing](#scientific-guide-to-avoid-pee-splashing)
+            - [Fool Proof way #1](#fool-proof-way-1)
+            - [Fool Proof way #2](#fool-proof-way-2)
+            - [Picture Guide and Detailed explaination](#picture-guide-and-detailed-explaination)
     - [Cloth-based](#cloth-based)
         - [Sofa](#sofa)
+        - [Bean bags](#bean-bags)
         - [Laundromat](#laundromat)
     - [Trash](#trash)
         - [Food waste](#food-waste)
         - [Dirty containers](#dirty-containers)
         - [Packaging](#packaging)
     - [Cleaning Tools](#cleaning-tools)
+        - [Baking Soda](#baking-soda)
+        - [Citric Acid](#citric-acid)
+        - [Bleach](#bleach)
         - [Robot Vacuum](#robot-vacuum)
         - [Vacuum Cleaner](#vacuum-cleaner)
+        - [Cleaning Mop](#cleaning-mop)
+- [Addition: Casual Guide to Roommate (Lite)](#addition-casual-guide-to-roommate-lite)
+    - [Sound Level](#sound-level)
+    - [Things in house that is used constantly and it'll be kinda, really, super nice if all members contribute and check on them](#things-in-house-that-is-used-constantly-and-itll-be-kinda-really-super-nice-if-all-members-contribute-and-check-on-them)
     - [The End](#the-end)
 
 <!-- markdown-toc end -->
@@ -252,9 +265,9 @@ So if your roommates are not helpful because they are traumatized idiots. How to
 
 At the end of the day, it becomes a habit, and it becomes less daunting. And your roommates won't be hounding you like your mom anymore! Please, we're only 24 and 25, we're not ready to be nagging parents. Anyway, I'm saying that only positive outcomes can occur from cleaning more often. 
 
-For the time being, please do consider hiring a cleaner every month or so. Be less traumatized and stressed. 
+For the time being, please do consider hiring a cleaner every month or so. Be less traumatized and stressed, in a socialist society these tasks will be shared in a routine schedule in equal share, right now we must consider the power of money. 
 
 Also consider a new place if your roommates become unbearable, where you live by your own rules instead of having to follow a guide of cleanliness that is 3000 words long.
 
-**Wow, these writers sure are sleep deprived, these guide sucks:**
+**Wow, these writers sure are sleep deprived and bad at writing, this guide sucks. Happy Cleaning!**
 ![Do your dishes please](./img/terminator.jpg "terminator")
