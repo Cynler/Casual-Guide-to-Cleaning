@@ -124,7 +124,7 @@ Use a microfiber cloth mop and wipe the floors. When cleaning with a mop, don't 
 Tiles have grooves so vacuums can't reach as well. Use a broom for more control.
 
 ## Toilet
-I grew up with two brothers and pee stained toilet seats stopped being a problem after they are highschoolers. Certain man still make this mistake and he's 60 by the time of writing. Everyone's aim can improve is what I am saying. Accidents happen, but if they happen every other week then it's a skill issue.
+I grew up with two brothers. Certain old man I know still make this mistake and he's 60 by the time of writing. If you are not over 60, your aim can improve is what I am saying. Accidents happen, but if they happen every other week then it's a skill issue.
 
 ### Scientific Guide to avoid pee splashing
 ![look I really dont want to include this section](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fmedia.giphy.com%2Fmedia%2FVS3zCR5S6frDW%2Fgiphy.gif&f=1&nofb=1&ipt=cdd723ea1dbe1371946b136674e5c90c8d9611c859122deda5a9652aada9f7c3&ipo=images)
@@ -135,12 +135,13 @@ Just wipe the toilet seat everytime you pee or poop. Witches do this during thei
 #### Picture Guide and Detailed explaination
 First, Lift the Toilet Seat.
 
-Aim for the steepest part of the bowl near the water, that's easiest to hit/offers the biggest surface to tolerate wandering. In the following image this would be to aim for the green dot, and you have the entire panel within the blue dots to cope with wandering. The pink dots at the sides and front would also work and are "better" because they're steeper but "worse" because they are harder to hit. If your aim is really good and really consistent go for pink, otherwise green is a better compromise between steepness and ease
+Aim for the steepest part of the bowl near the water, that's easiest to hit/offers the biggest surface to tolerate wandering. In the following image this would be to aim for the green dot, and you have the entire panel within the blue dots to cope with wandering. The pink dots at the sides and front would also work and are "better" because they're steeper but "worse" because they are harder to hit. If your aim is really good and really consistent go for pink, otherwise green is a better compromise between steepness and ease.
+
 ![toilet aim chart](https://i.stack.imgur.com/T02Bs.jpg)
 
 Last, Close the Toilet lid with the seat.
 
-**Wash your hands! Hope this guide helps.**
+**Remember wash your hands! Hope this guide helps.**
 
 ## Cloth-based 
 ### Sofa
@@ -213,21 +214,21 @@ This kind of mop is great, it can be used for wet or dry cleaning of flat surfac
 Wet mopping should only be done after sweeping or other forms of removing dust, since the wet pads will clog quickly before being able to do their job.
 
 # Addition: Casual Guide to Roommate (Lite)
-Remember College Dorm rules? Clean the dishes. Take turns to buy toilet paper (Don't risk your life for it tho). Quiet Hours after 10 pm. For the love of whatever religion or god please clean the microwave regularly. 
+Remember College Dorm rules? Clean the dishes. Take turns to buy toilet paper (Don't risk your life for it tho). Quiet Hours after 10 pm. Clean the microwave regularly. Rules are dumb, respecting them sounds hard, don't we all dream of not being bound by them growing up?
 
-Well congrats most of us are luckily not in college anymore. (One of us is an imposter.) But boy do those basic things haunt us, and will probably continue to haunt us until one of us move out to a fine single luxury housing.
+Well congrats most of us are luckily not in college anymore. (One of us is an imposter.) But boy do those basic things haunt us, and will probably continue to haunt us until one of us move out to a fine single luxury housing with a butler to serve your every whim.
 
 ## Sound Level
 For security our marching band steps and door slams ensures no robbers will appraoch this house. We need to upheld the proud tradition of being an upstairs neighbors of course! Stomp our feet to the beat of the drum, march towards a better future!
 
 Seriously tho, noise is relative, and all three of us are typically quiet unless there's visitors. So footsteps, when striking the ground **heel first**, can literaly shake the ground and everyone in the house can hear it with the door closed. Please watch this: https://www.youtube.com/watch?v=nH5VDhdhHyk
 
-Thank god we don't have downstairs neighbors. The landlord did just put the first floor out on rent. We don't live in Germany where the walls and floors are thick. In America we like our freedom with no privacy because our walls are literaly cardboard.
+Thank god we don't have downstairs neighbors. The landlord did just put the first floor out hoping someone will rent them. We don't live in Germany where the walls and floors are thick. In America we like our freedom with no privacy because our walls are literaly cardboard and our floors made of hollow waffles.
 
-To illustrate how bad the sound proofing of this house is.
+To illustrate how bad the sound proofing of this house is,
 Any TV sound level above 20 can be heard clearly from every room of this floor except the bathroom with the fans turned on.
 
-## Things in house that is used constantly and it'll be kinda, really, super nice if all members contribute and check on them
+## Things in house that is used constantly and it'll be kinda, really, super nice if all members contribute to ensure they are stocked
 - Malden Trashbags
 - Paper Towels
 - Toilet Paper
@@ -240,16 +241,16 @@ Any TV sound level above 20 can be heard clearly from every room of this floor e
 - Laundry Soap, Laundry Sheets
 - Batteries
 
-**According to an ancient myth, if you ever noticed any of these depleting and replensihing magically in a house you will have good luck forever <3**
+**According to an ancient myth, if you ever pay attention any of these depleting and replensihing magically in a house you will have good luck forever <3 The little leprechauns check on them bi-weekly and stock them with their personal income.**
 
 ## The End
-I know that if you've never really taught to notice this before it can feel daunting, but since asking questions as you go might feel awkward because you might not know where to start, really the best way to learn is to do them. Clean the sofa, your own room, and try cleaning the stove top after you cook. **ASK IF YOU DON'T KNOW HOW OR WHERE OR WHY, ASK SOMEONE or GOOGLE!!!!** If you are wondering why your roommates have so little patience, its because they're independent living abilities are taught by these two wise voices in their lives.
+I know that if you've never really taught to notice this before it can feel daunting, but since asking questions as you go might feel awkward because you might not know where to start, really the best way to learn is to do them. Clean the sofa, your own room, and try cleaning the stove top after you cook. **ASK IF YOU DON'T KNOW HOW OR WHERE OR WHY, ASK SOMEONE or GOOGLE!!!!** If you are wondering why your roommates have so little patience, its because they're independent living abilities are taught by these two wise voices in their lives:
 
 *(Imagine the following dumb line in an old man voice) Back in my day, we make children our dish washers and scream at them if they make a mistake and then condescend them. Now they can clean after themselves well but now need therapy. They are so weak.*
 
 *(Imagine the following line in your sweet grandma's voice) Don't worry dear, you just need to study and mom will do these for you. If you get a good job and school, you land yourself a good wife who will cook and clean for you. If your genitals are different I'll only ever tell you clean up after a men as a way to fulfill your life's duty.*
 
-So consider this, your roommates are pretty useless to have standards that stresses them out when not met. Feel powerful and proud being that Bogeyman that haunt their dreams. Go Queen!
+So consider this, there are those who learn cleanning and living with another without trauma, your roommates are pretty useless to have standards that stresses them out when they not met. Feel powerful and proud being the Bogeyman that haunt their dreams. 
 
 So if your roommates are not helpful because they are traumatized idiots. How to ask questions to yourself when routinely taking care of pesky hygiene? Here are some examples:
 
