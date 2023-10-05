@@ -48,12 +48,13 @@ When hand washing dishes:
 
 After Dishes are done:
 - **Place the washed dishes face down**, so the water doesn't linger on the dishes
-- Squeeze the sponges and shake the brushes dry. Wet sponges are perfect breeding grounds for bacteria, and bugs *love* to lay their eggs in dripping water pools filled with nutritious food bits.
+- **Squeeze the sponges and shake the brushes dry**. Wet sponges are perfect breeding grounds for bacteria, and bugs *love* to lay their eggs in dripping water pools filled with nutritious food bits.
 - Dump out the sink filters to **to the trash**
 
 How to clean dish cloth: 
 - Wash and rinse the cloth after washing it with cleaner
-- Microwave for a minute
+- **Please make sure the cloth is soap free.** If you let the cleaner solution dry with the cloth the rag will quickly become brittle.
+- Microwave for a minute to sterilize.
 
 Wash your hands after touching the dishes, especially days old dishes. Don't cross contaminate.
 
@@ -107,7 +108,26 @@ Sweep or vacuum the floor. **CHECK UNDERNEATH REACHABLE FURNITURE or CORNERS.**
 Use a microfiber cloth mop and wipe the floors. When cleaning with a mop, don't over wet the cloth. 
 
 ### Tiles
-Tiles have grooves so vacuums can't reach as well. You can use a broom.
+Tiles have grooves so vacuums can't reach as well. Use a broom for more control.
+
+## Toilet
+I grew up with two brothers and pee stained toilet seats stopped being a problem after they are highschoolers. Certain man still make this mistake and he's 60 by the time of writing. Everyone's aim can improve is what I am saying. Accidents happen, but if they happen every other week then it's a skill issue.
+
+### Scientific Guide to avoid pee splashing
+![look I really dont want to include this section](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fmedia.giphy.com%2Fmedia%2FVS3zCR5S6frDW%2Fgiphy.gif&f=1&nofb=1&ipt=cdd723ea1dbe1371946b136674e5c90c8d9611c859122deda5a9652aada9f7c3&ipo=images)
+#### Fool Proof way #1
+Seat Down, your gender won't change doing this, it's scietificly tested and proven.
+#### Fool Proof way #2
+Just wipe the toilet seat everytime you pee or poop. Witches do this during their monthly blood letting ritual to ensure no blood gets on the toilet seat. 
+#### Picture Guide and Detailed explaination
+First, Lift the Toilet Seat.
+
+Aim for the steepest part of the bowl near the water, that's easiest to hit/offers the biggest surface to tolerate wandering. In the following image this would be to aim for the green dot, and you have the entire panel within the blue dots to cope with wandering. The pink dots at the sides and front would also work and are "better" because they're steeper but "worse" because they are harder to hit. If your aim is really good and really consistent go for pink, otherwise green is a better compromise between steepness and ease
+![toilet aim chart](https://i.stack.imgur.com/T02Bs.jpg)
+
+Last, Close the Toilet lid with the seat.
+
+**Wash your hands! Hope this guide helps.**
 
 ## Cloth-based 
 ### Sofa
@@ -115,7 +135,10 @@ Use the handheld vacuum to vacuum the sofa.
 - Do a once over for visible surfaces.
 - Vacuum under the sofa cracks.
 
-Our sofa slipcovers can be machine washed when taken off.
+Our sofa slipcovers can be machine washed when taken off. Which usually cleaned once a month, but if you sweat or eat food on the couch regularly, then please consider bi-weekly clean by taking the covers off and wash them at the laundromat.
+
+### Bean bags
+The covers for the bean bags can be taken off and washed at the laundromat as well. 
 
 ### Laundromat
 Please do not kill the washer by overloading the high pressured washing machines with soap, high pressured washing machines requires less soap that normal washing machines. We only have 1 good laundromat close by. There are instructions in the laundromat on how to use the machines. Follow them, please. The laundry machines have seen enough abuse. Please don't perpetuate the cycles of abuse, only the cycles of cleaning. 
@@ -124,7 +147,7 @@ Please do not kill the washer by overloading the high pressured washing machines
 **If the trash reaches the top PLEASE TAKE THE TRASH OUT, you don't have to wait till the trash it absolutely stuffed that you can't close the lid.** We are not college kids playing hot potatoes with the garbage disposals anymore. You don't want smells, I don't want smells, and keep the trash lid closed unless you want a fly infestation.
 
 ### Food waste
-If you have a lot of food waste, dump it in the plastic bag the takeout came with, tie the plastic bag, throw it in the trash. I know it seems like leaving it in the takeout containers is enough, *but under heat and moisture the food waste will start to smell and leak out.* Takeout container lids can be flimsy as well.
+If you have a lot of food waste, dump it in the plastic bag the takeout came with, tie the plastic bag, throw it in the trash. If its **A LOT A LOT,** throw it in the trash bin outside (Put it inside the Malden Trash Bag then put it in the outside trash bin.). I know it seems like leaving it in the takeout containers is enough, *but under heat and moisture the food waste will start to smell and leak out over time.* Takeout container lids can be flimsy as well.
 
 ### Dirty containers
 If you have a lot of dirty containers, slightly wash out the food scraps and dries them. Stack them so it doesn't take up so much space in the trash. 
@@ -153,6 +176,7 @@ There's a lot of things you can do with it, search it up if you are interested.
 
 ### Bleach
 Bleach is extremely strong, only use it for things like the toilet and deep cleaning the stove. Don't use it with any bowls or plates  
+
 ### Robot Vacuum
 ![goobs portrait](https://smartrobotichome.com/wp-content/uploads/2019/03/Shark-Ion-R85.png)
 
@@ -175,10 +199,62 @@ After each use, the canister should be emptied into the trash can, and the mesh 
 This kind of mop is great, it can be used for wet or dry cleaning of flat surfaces depending on the cloth/pads you use. We have a microfiber cloth and refill pads. 
 Wet mopping should only be done after sweeping or other forms of removing dust, since the wet pads will clog quickly before being able to do their job.
 
+# Addition: Casual Guide to Roommate (Lite)
+Remember College Dorm rules? Clean the dishes. Take turns to buy toilet paper (Don't risk your life for it tho). Quiet Hours after 10 pm. For the love of whatever religion or god please clean the microwave regularly. 
+
+Well congrats most of us are luckily not in college anymore. (One of us is an imposter.) But boy do those basic things haunt us, and will probably continue to haunt us until one of us move out to a fine single luxury housing.
+
+## Sound Level
+For security our marching band steps and door slams ensures no robbers will appraoch this house. We need to upheld the proud tradition of being an upstairs neighbors of course! Stomp our feet to the beat of the drum, march towards a better future!
+
+Seriously tho, noise is relative, and all three of us are typically quiet unless there's visitors. So footsteps, when striking the ground **heel first**, can literaly shake the ground and everyone in the house can hear it with the door closed. Please watch this: https://www.youtube.com/watch?v=nH5VDhdhHyk
+
+Thank god we don't have downstairs neighbors. The landlord did just put the first floor out on rent. We don't live in Germany where the walls and floors are thick. In America we like our freedom with no privacy because our walls are literaly cardboard.
+
+To illustrate how bad the sound proofing of this house is.
+Any TV sound level above 20 can be heard clearly from every room of this floor except the bathroom with the fans turned on.
+
+## Things in house that is used constantly and it'll be kinda, really, super nice if all members contribute and check on them
+- Malden Trashbags
+- Paper Towels
+- Toilet Paper
+- Alcohol Wipes (Lynsol Wipes)
+- Tissue Paper
+- Napkins
+- Dish Soap
+- Sponges
+- Cleaners like Baking Soda, Cleaning Alcohol...etc
+- Laundry Soap, Laundry Sheets
+- Batteries
+
+**According to an ancient myth, if you ever noticed any of these depleting and replensihing magically in a house you will have good luck forever <3**
+
 ## The End
-I know that if you've never really done this before it can feel daunting, but since asking questions as you go might feel awkward because you might not know where to start, really the best way to learn is to do them. Clean the sofa, your own room, and try cleaning the stove top after you cook. **ASK IF YOU DON'T KNOW HOW, ASK!!!!**
+I know that if you've never really taught to notice this before it can feel daunting, but since asking questions as you go might feel awkward because you might not know where to start, really the best way to learn is to do them. Clean the sofa, your own room, and try cleaning the stove top after you cook. **ASK IF YOU DON'T KNOW HOW OR WHERE OR WHY, ASK SOMEONE or GOOGLE!!!!** If you are wondering why your roommates have so little patience, its because they're independent living abilities are taught by these two wise voices in their lives.
+
+*(Imagine the following dumb line in an old man voice) Back in my day, we make children our dish washers and scream at them if they make a mistake and then condescend them. Now they can clean after themselves well but now need therapy. They are so weak.*
+
+*(Imagine the following line in your sweet grandma's voice) Don't worry dear, you just need to study and mom will do these for you. If you get a good job and school, you land yourself a good wife who will cook and clean for you. If your genitals are different I'll only ever tell you clean up after a men as a way to fulfill your life's duty.*
+
+So consider this, your roommates are pretty useless to have standards that stresses them out when not met. Feel powerful and proud being that Bogeyman that haunt their dreams. Go Queen!
+
+So if your roommates are not helpful because they are traumatized idiots. How to ask questions to yourself when routinely taking care of pesky hygiene? Here are some examples:
+
+*Where is X supplies at? Lemme check the cupboards underneath the kitchen sink and the living room closet.*
+
+*I think I covered all surfaces, let me count again.*
+
+*Do I feel* **dust/oil/soap** *on my finger tips when touching this space I just cleaned and dried?*
+
+*I wonder if this is the right cleaner, to ensure it doesn't damage the floor/furniture/object, let me search on Google.*
+
+*Oh, we ran out of tissue/napkins/paper towels/trash bags, lemme go buy them instead of leaving it as a surprise mechanic for the next person.*
 
 At the end of the day, it becomes a habit, and it becomes less daunting. And your roommates won't be hounding you like your mom anymore! Please, we're only 24 and 25, we're not ready to be nagging parents. Anyway, I'm saying that only positive outcomes can occur from cleaning more often. 
 
-**Happy Scrubbing**
+For the time being, please do consider hiring a cleaner every month or so. Be less traumatized and stressed. 
+
+Also consider a new place if your roommates become unbearable, where you live by your own rules instead of having to follow a guide of cleanliness that is 3000 words long.
+
+**Wow, these writers sure are sleep deprived, these guide sucks:**
 ![Do your dishes please](./img/terminator.jpg "terminator")
