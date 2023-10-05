@@ -128,10 +128,10 @@ I grew up with two brothers. Certain old man I know still make this mistake and 
 
 ### Scientific Guide to avoid pee splashing
 ![look I really dont want to include this section](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fmedia.giphy.com%2Fmedia%2FVS3zCR5S6frDW%2Fgiphy.gif&f=1&nofb=1&ipt=cdd723ea1dbe1371946b136674e5c90c8d9611c859122deda5a9652aada9f7c3&ipo=images)
+
 #### Fool Proof way #1
-Seat Down, your gender won't change doing this, it's scietificly tested and proven.
-#### Fool Proof way #2
 Just wipe the toilet seat everytime you pee or poop. Witches do this during their monthly blood letting ritual to ensure no blood gets on the toilet seat. 
+
 #### Picture Guide and Detailed explaination
 First, Lift the Toilet Seat.
 
@@ -213,10 +213,10 @@ After each use, the canister should be emptied into the trash can, and the mesh 
 This kind of mop is great, it can be used for wet or dry cleaning of flat surfaces depending on the cloth/pads you use. We have a microfiber cloth and refill pads. 
 Wet mopping should only be done after sweeping or other forms of removing dust, since the wet pads will clog quickly before being able to do their job.
 
-# Addition: Casual Guide to Roommate (Lite)
-Remember College Dorm rules? Clean the dishes. Take turns to buy toilet paper (Don't risk your life for it tho). Quiet Hours after 10 pm. Clean the microwave regularly. Rules are dumb, respecting them sounds hard, don't we all dream of not being bound by them growing up?
+# Extra: Casual Guide to Roommate (Lite)
+Remember College Dorm rules? Clean the dishes. Take turns to buy toilet paper (Don't risk your life for it tho). Quiet Hours after 10 pm. Clean the microwave regularly. Rules are dumb, respecting them sounds annoying, don't we all dream of not being bound by rules growing up?
 
-Well congrats most of us are luckily not in college anymore. (One of us is an imposter.) But boy do those basic things haunt us, and will probably continue to haunt us until one of us move out to a fine single luxury housing with a butler to serve your every whim.
+Well, congrats most of us are luckily not in college anymore. (One of us is an imposter.) But boy do those basic things haunt us, and will probably continue to haunt us until one of us move out to a fine single luxury housing with a butler to serve your every whim. In the event of any of us winning the lottery just know that I never doubted the winner will win and they're the coolest person ever, now please pay my student loans for me.
 
 ## Sound Level
 For security our marching band steps and door slams ensures no robbers will appraoch this house. We need to upheld the proud tradition of being an upstairs neighbors of course! Stomp our feet to the beat of the drum, march towards a better future!
@@ -244,13 +244,15 @@ Any TV sound level above 20 can be heard clearly from every room of this floor e
 **According to an ancient myth, if you ever pay attention any of these depleting and replensihing magically in a house you will have good luck forever <3 The little leprechauns check on them bi-weekly and stock them with their personal income.**
 
 ## The End
-I know that if you've never really taught to notice this before it can feel daunting, but since asking questions as you go might feel awkward because you might not know where to start, really the best way to learn is to do them. Clean the sofa, your own room, and try cleaning the stove top after you cook. **ASK IF YOU DON'T KNOW HOW OR WHERE OR WHY, ASK SOMEONE or GOOGLE!!!!** If you are wondering why your roommates have so little patience, its because they're independent living abilities are taught by these two wise voices in their lives:
+I know that if you've never really taught to notice this before it can feel daunting, but since asking questions as you go might feel awkward because you might not know where to start, really the best way to learn is to do them. Clean the sofa, your own room, and try cleaning the stove top after you cook. **ASK IF YOU DON'T KNOW HOW OR WHERE OR WHY, ASK SOMEONE or GOOGLE!!!!**
+
+If you are wondering why your roommates can be so mean, its because their independent living abilities are taught by these two wise teachers in their lives:
 
 *(Imagine the following dumb line in an old man voice) Back in my day, we make children our dish washers and scream at them if they make a mistake and then condescend them. Now they can clean after themselves well but now need therapy. They are so weak.*
 
-*(Imagine the following line in your sweet grandma's voice) Don't worry dear, you just need to study and mom will do these for you. If you get a good job and school, you land yourself a good wife who will cook and clean for you. If your genitals are different I'll only ever tell you clean up after a men as a way to fulfill your life's duty.*
+*(Imagine the following line in a sweet grandma's voice) Don't worry dear, you just need to study and mom will do these for you. If you get a good job and school, you land yourself a good wife who will cook and clean for you. If your genitals are different I'll only ever tell you clean up after a men as a way to fulfill your life's duty and never talk to you about anything else until the day I die.*
 
-So consider this, there are those who learn cleanning and living with another without trauma, your roommates are pretty useless to have standards that stresses them out when they not met. Feel powerful and proud being the Bogeyman that haunt their dreams. 
+So consider this, there are those who learn cleaning and living with another without trauma, your roommates are pretty useless to have standards that stresses them out when they not met. Feel powerful and proud being the Bogeyman that haunt their dreams. 
 
 So if your roommates are not helpful because they are traumatized idiots. How to ask questions to yourself when routinely taking care of pesky hygiene? Here are some examples:
 
@@ -262,13 +264,13 @@ So if your roommates are not helpful because they are traumatized idiots. How to
 
 *I wonder if this is the right cleaner, to ensure it doesn't damage the floor/furniture/object, let me search on Google.*
 
-*Oh, we ran out of tissue/napkins/paper towels/trash bags, lemme go buy them instead of leaving it as a surprise mechanic for the next person.*
+*Oh, we ran out of tissue/napkins/paper towels/trash bags, lemme go buy them.*
 
 At the end of the day, it becomes a habit, and it becomes less daunting. And your roommates won't be hounding you like your mom anymore! Please, we're only 24 and 25, we're not ready to be nagging parents. Anyway, I'm saying that only positive outcomes can occur from cleaning more often. 
 
 For the time being, please do consider hiring a cleaner every month or so. Be less traumatized and stressed, in a socialist society these tasks will be shared in a routine schedule in equal share, right now we must consider the power of money. 
 
-Also consider a new place if your roommates become unbearable, where you live by your own rules instead of having to follow a guide of cleanliness that is 3000 words long.
+Also consider a new place if your roommates become too unbearable and mean, where you live by your own rules instead of having to follow a useless guide of cleanliness that is 3000 words long and written by sleep deprived young adults in the course of a month.
 
-**Wow, these writers sure are sleep deprived and bad at writing, this guide sucks. Happy Cleaning!**
+**Happy Cleaning!**
 ![Do your dishes please](./img/terminator.jpg "terminator")
