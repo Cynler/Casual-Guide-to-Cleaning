@@ -228,7 +228,7 @@ To illustrate how bad the sound proofing of this house is,
 Any TV sound level above 20 can be heard clearly from every room of this floor except the bathroom with the fans turned on.
 
 ## Things in house that is used constantly and it'll be kinda, really, super nice if all members contribute to ensure they are stocked
-- Malden Trashbags
+- Trashbags (subject to the State and Municipal Trash Laws)
 - Paper Towels
 - Toilet Paper
 - Alcohol Wipes (Lynsol Wipes)
@@ -243,17 +243,9 @@ Any TV sound level above 20 can be heard clearly from every room of this floor e
 **According to an ancient myth, if you ever pay attention any of these depleting and replenishing magically in a house you will have good luck forever <3 I heard if you make a wish little house elves restock them, cool, right?.**
 
 ## The End
-I know that if you've never really taught to notice this before it can feel daunting, but since asking questions as you go might feel awkward because you might not know where to start, really the best way to learn is to do them. Clean the sofa, your own room, and try cleaning the stove top after you cook. **ASK IF YOU DON'T KNOW HOW OR WHERE OR WHY, ASK SOMEONE or GOOGLE!!!!**
+I know that if you've never really taught to notice this before it can feel daunting, but since asking questions as you go might feel awkward because you might not know where to start, really the best way to learn is to do them. Clean the sofa, your own room, and try cleaning the stove top after you cook. 
 
-If you are wondering why your roommates can be so mean, its because their independent living abilities are taught by these two wise teachers in their lives:
-
-*(Imagine the following dumb line in an old man voice) Back in my day, we make children our dish washers and scream at them if they make a mistake and then condescend them. Now they can clean after themselves well but now need therapy. They are so weak.*
-
-*(Imagine the following line in a sweet grandma's voice) Don't worry dear, you just need to study and mom will do these for you. If you get a good job and school, you land yourself a good wife who will cook and clean for you. If your genitals are different I'll only ever tell you clean up after a men as a way to fulfill your life's duty and never talk to you about anything else until the day I die.*
-
-So consider this, there are those who learn cleaning and living with another without trauma, your roommates are pretty useless to have standards that stresses them out when they not met. Feel powerful and proud being the Bogeyman that haunt their dreams. 
-
-So if your roommates are not helpful because they are traumatized idiots. How to ask questions to yourself when routinely taking care of pesky hygiene? Here are some examples:
+How to ask questions to yourself when routinely taking care of pesky hygiene? Here are some examples:
 
 *Where is X supplies at? Lemme check the cupboards underneath the kitchen sink and the living room closet.*
 
@@ -265,11 +257,7 @@ So if your roommates are not helpful because they are traumatized idiots. How to
 
 *Oh, we ran out of tissue/napkins/paper towels/trash bags, lemme go buy them.*
 
-At the end of the day, it becomes a habit, and it becomes less daunting. And your roommates won't be hounding you like your mom anymore! Please, we're only 24 and 25, we're not ready to be nagging parents. Anyway, I'm saying that only positive outcomes can occur from cleaning more often. 
-
-For the time being, please do consider hiring a cleaner every month or so. Be less traumatized and stressed, in a socialist society these tasks will be shared in a routine schedule in equal share, right now we must consider the power of money. 
-
-Also consider a new place if your roommates become too unbearable and mean, where you live by your own rules instead of having to follow a useless guide of cleanliness that is 3000 words long and written by sleep deprived young adults in the course of a month.
+At the end of the day, it becomes a habit, and it becomes less daunting. Anyway, I'm saying that only positive outcomes can occur from cleaning more often. Here’s the 2600+ words essay on cleaning. 
 
 **Happy Cleaning!**
 ![Do your dishes please](./img/terminator.jpg "terminator")
